@@ -1,5 +1,5 @@
 - 👋 Olá Eu Sou Erivaldo Franca Santos
-- 👀 Atualmente Trabalho como Técnico em Finanças
+- 👀 Atualmente Trabalho como Técnico em Finanças Pública
 - 🌱 Sou Pós Graduado Finanças, Controladoria e Auditoria
 - 📫 Meu email é: erivaldofrancaefs@gmail.com
 
